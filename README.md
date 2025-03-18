@@ -1,0 +1,2 @@
+# Kutibxonaa
+Uzimiz uchun
